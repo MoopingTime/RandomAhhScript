@@ -1,2 +1,2 @@
 # RandomAhhScript
-boo
+ehh i post script here idk
